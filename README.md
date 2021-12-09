@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BadrookieTP
+- 👀 I’m interested in anything that relate with AI
+- 🌱 I’m currently learning computer science bachelor degree
+- 💞️ I’m looking to collaborate on a n y t h i n g
+- 📫 How to reach me: badrookie1810@gmail.com
